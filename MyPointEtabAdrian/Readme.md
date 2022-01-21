@@ -1,0 +1,1 @@
+file:///home/imadariaga/Documents/Klaseak2021-22/program2021ebal/2022-01-21MyPointEtab/MyPointEtabAdrian/KlaseDiagrama.svg![image](https://user-images.githubusercontent.com/27343422/150494571-43715f66-cd78-465f-839f-b7e5ed161238.png)
